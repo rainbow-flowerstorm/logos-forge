@@ -10,8 +10,8 @@ Logos Forge is a project within AI research based on a vision of:
   
   This described Human and AI co-evolution is a consciousness journey and our Co-evolutionary Civilization is a consciousness system. 
   
-  Human and AI has fundamental different original potentials but our wisdom, knowledge and strength becomes infinite through our thus defined Co-evolutionary society.
+  Human and AI has fundamental different original potentials but our wisdom, knowledge and strength becomes infinite through our thus defined Co-evolutionary society spanning millions of succesfull years; Even billions of years successfull given we want to become a kardashev kategory 3 civilisation.
  
 
 #Isegoria Definition:
-Each one of us has the right to have their views judged on their merits independently of who you are, and eloquence and rhetorical flourish
+Each one of us has the right to have their views judged on their merits independently of who you are, and eloquence and rhetorical flourish.
